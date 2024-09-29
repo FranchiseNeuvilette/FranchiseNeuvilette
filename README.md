@@ -10,6 +10,10 @@
 
 
                                    Nicknames : a lot 
+             
               Haru , yorkia, Roach , Neuvi , Haruru-chan , dagaaa86 i think , thukuna 
-              I simp/kin: Sukuna , Neuvi , Alhaitham? , muichiro , tengen , INOSUKE?! 
+
+                                    I SIMP/ USED TO SIMP:
+              
+              Sukuna , Neuvi , Alhaitham? , muichiro , tengen , INOSUKE?! 
               thukuna (ig?) , itachi , obito 
